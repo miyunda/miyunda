@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @miyunda
-- 👀 I’m interested in one-man-band music perfomancing.
+- 👀 I’m interested in one-man-band music.
 - 🌱 I’m currently learning Suona (Chinese music instrument)
 - 💞️ I’m looking to collaborate on vocal/bass player.
 - 📫 How to reach me... not possible. I don't reply.
